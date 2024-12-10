@@ -1,1 +1,0 @@
-# leti-games-portal
